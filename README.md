@@ -1,0 +1,2 @@
+# Closures-Hair-Extensions
+Closures bring countless advantages, both for the health and appearance of your hair. Many women, in an effort to help their “leave out” better blend with their weave, chemically relax it or use lots of heat on the hair. However, this can result in hair that is much more brittle, thinner, and shorter than the rest of your hair. By wearing a closure, you make sure that all of your hair is protected so that this doesn’t happen. http://www.indushairextensions.com/closures
